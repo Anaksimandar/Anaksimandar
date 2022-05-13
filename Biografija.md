@@ -1,4 +1,4 @@
-Aleksandar Petrović, 21 - jednogodisnji student  VIŠER-a završne godine.
+Aleksandar Petrović, 21 - jednogodisnji student  VIŠER-a, završne godine.
 
 Zainteresovan , prvenstveno, za veb development.
 
